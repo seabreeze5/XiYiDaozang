@@ -1,4 +1,4 @@
-# [希夷道藏](https://daojia-9999.github.io/YuanshiDaozang/)
+# [希夷道藏](https://seabreeze5.github.io/XiYiDaozang/)
 
 ##关于
 
